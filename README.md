@@ -1,4 +1,4 @@
-**"Just keep swimming." -Dory**
+**"Keep searching for that sound you hear in your head until it becomes a reality." -Bill Evans**
 ##
 
 <!-- Github stats -->
